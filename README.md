@@ -1,5 +1,4 @@
-## oirrrrr 👋
+## Aluna de Tecnologia em Análise e Desenvolvimento de Sistemas
 
-Gabriela Santos Tucunduva
 Instituto Federal do Mato Grosso do Sul
 
